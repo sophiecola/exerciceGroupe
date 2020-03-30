@@ -1,1 +1,3 @@
 # exerciceGroupe
+
+Sophie
