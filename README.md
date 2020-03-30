@@ -1,3 +1,4 @@
 # exerciceGroupe
--Julien Beauvallet
+Sophie
 Vaggarath - Julien C
+-Julien Beauvallet
