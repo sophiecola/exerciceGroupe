@@ -1,2 +1,12 @@
 # exerciceGroupe
+
+
+
+
+
+
+
+
+
+
 Vaggarath - Julien C
